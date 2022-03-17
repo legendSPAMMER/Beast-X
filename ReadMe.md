@@ -1,4 +1,4 @@
-<h2 align="center"><b>OwNeR <a href="https://telegram.dog/Godmrunal">⚡️ ＭＲＵＮＡＬ•🇮🇳•🚀</a></b></h2>
+<h2 align="center"><b>OwNeR <a href="https://telegram.dog/Godmrunal"> ARYAN•🇮🇳•🚀</a></b></h2>
 <br>
 <p align="center">
    <a href="https://github.com/msy1717/Beast-X"><img src="https://telegra.ph/file/4a1e0ee716f805cf66777.jpg" alt="Beast X" width=400px></a>
